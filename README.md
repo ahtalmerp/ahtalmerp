@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Prema from CONTUS
+- 👀 I’m interested to know the Different types of Techies
+- 🌱 I’m currently doing HR Recruitement
+- 💞️ I’m looking to collaborate with IT Professionals for our Product...
+- 📫 You can reach me via premlatha.k@contus.in
