@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Prema 
-- 👀 I’m interested to learn iOS advance concepts.
+- 👀 I’m interested to learn iOS advance concepts and other new technologies.
 - 🌱 I’m currently doing apps in iOS.
 - 💞️ I’m looking to collaborate with iOS teammates.
 - 📫 You can reach me here!!
